@@ -8,4 +8,4 @@ More about me...
 I believe in the power of community building through transcultural food fests!
 Serendipity is best created through movement. Thus, I enjoy long distance runnin, hiking with friends, and biking. 
 
-See you soon!
+   See you soon!
