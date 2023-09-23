@@ -1,7 +1,7 @@
 Hi, my name is Miray!
 I study Public Policy at UC Berkeley's Goldman School, and I'm also doing research here.
 
-![Image Alt Text](<https://unsplash.com/photos/raNGlrn5JRI>)
+![Image Alt Text](<https://github.com/MiraySa/miraysa.github.io/blob/main/WhatsApp%20Image%202023-09-22%20at%208.26.13%20PM.jpeg?raw=true>)
 
 
 **About me:**
